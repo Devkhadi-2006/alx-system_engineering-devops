@@ -1,1 +1,0 @@
-itcontain betty info
